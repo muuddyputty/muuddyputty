@@ -1,4 +1,10 @@
-wip asf asf asfuuhhcckkk
+<p align="center"> 
+
+<img src="https://media.discordapp.net/attachments/1200586867142299758/1558213772005605498/dudebroh-ezgif.com-crop.gif?ex=6aca9f29&amp;is=6ac94da9&amp;hm=118cc4671cb90ffbcbf42f82abed4a6a03863efaccfdec7adc096417bcd0966b&amp;="/>
+
+ <p align="center">  wip asf asf asfuuhhcckkk
+
+<p align="center">  <a href=https://rentry.co/ssoukeyez target="_blank">rentry</a> 　　☤𓏼 　　<a href=https://soukeyez.atabook.org/ target="_blank">新book</a> 
 
 <!--
 **muuddyputty/muuddyputty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
