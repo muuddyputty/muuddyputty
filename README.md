@@ -1,6 +1,6 @@
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=roboto+slab&weight=100&size=17&duration=4942&pause=992&color=BEBEBE&background=FFFFFF00&center=true&width=429&height=62&lines=%22+++stay+with+me%2C+safe+and+ignorant.;just+stay+with+me++++%22" alt="Typing SVG" /></a>
 
-<p align="center"> <img src="https://media.discordapp.net/attachments/1200586867142299758/1558213772005605498/dudebroh-ezgif.com-crop.gif?ex=6aca9f29&amp;is=6ac94da9&amp;hm=118cc4671cb90ffbcbf42f82abed4a6a03863efaccfdec7adc096417bcd0966b&amp;="/>
+<p align="center"> <img src="https://media.discordapp.net/attachments/1200586867142299758/1558213772005605498/dudebroh-ezgif.com-crop.gif?ex=6acdeae9&amp;is=6acc9969&amp;hm=205ec07f0176d520363455482d98032448a5fd762619c8461ecf6952de5d7506&amp;="/> 
 
  <p align="center">  wip asf asf asfuuhhcckkk
 
