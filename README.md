@@ -1,7 +1,7 @@
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=roboto+slab&weight=100&size=17&duration=4942&pause=992&color=BEBEBE&background=FFFFFF00&center=true&width=429&height=62&lines=%22+++stay+with+me%2C+safe+and+ignorant.;just+stay+with+me++++%22" alt="Typing SVG" /></a>
 
-<p align="center"> <img src="https://media.discordapp.net/attachments/1200586867142299758/1558213772005605498/dudebroh-ezgif.com-crop.gif?ex=6acdeae9&amp;is=6acc9969&amp;hm=205ec07f0176d520363455482d98032448a5fd762619c8461ecf6952de5d7506&amp;="/> 
-
+<p align="center"> <img src="https://camo.githubusercontent.com/2535973209128ceb70bc645a379d95910acfdca98a5d5e3d87093d8cf9e1e6dc/68747470733a2f2f6d656469612e646973636f72646170702e6e65742f6174746163686d656e74732f313230303538363836373134323239393735382f313535383231333737323030353630353439382f6475646562726f682d657a6769662e636f6d2d63726f702e6769663f65783d36616364656165392669733d366163633939363926686d3d32303565633037663031373664353230333633343535343832643938303332343438613566643736323631396338343631656366363935326465356437353036263d"/>
+ 
  <p align="center">  wip asf asf asfuuhhcckkk
 
 <p align="center">  <a href=https://rentry.co/ssoukeyez target="_blank">rentry</a> 　　☤𓏼 　　<a href=https://soukeyez.atabook.org/ target="_blank">新book</a> 
