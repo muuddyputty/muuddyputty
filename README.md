@@ -1,6 +1,6 @@
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=roboto+slab&weight=100&size=17&duration=4942&pause=992&color=BEBEBE&background=FFFFFF00&center=true&width=429&height=62&lines=%22+++stay+with+me%2C+safe+and+ignorant.;just+stay+with+me++++%22" alt="Typing SVG" /></a>
 
-<p align="center"> <img width="800" height="413" alt="8211e268-badb-412e-a0da-17244e3dba04" src="https://github.com/user-attachments/assets/ac73a502-d6e8-4af9-8015-38d3195e35ac" />
+<p align="center"> <img width="800" height="313" alt="8211e268-badb-412e-a0da-17244e3dba04" src="https://github.com/user-attachments/assets/ac73a502-d6e8-4af9-8015-38d3195e35ac" />
 
 
 
