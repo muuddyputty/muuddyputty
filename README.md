@@ -7,7 +7,7 @@
 
  <p align="center">  wip asf asf asfuuhhcckkk
 
-<p align="center">  <a href=https://rentry.co/ssoukeyez target="_blank">rentry</a> 　　☤𓏼 　　<a https://muddyputty.atabook.org/>新book</a> 
+<p align="center">  <a href=https://rentry.co/ssoukeyez target="_blank">rentry</a> 　　☤𓏼 　　<a href=https://muddyputty.atabook.org target="_blank"</a> 
 
 <!--
 **muuddyputty/muuddyputty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
